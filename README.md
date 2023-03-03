@@ -1,1 +1,0 @@
-# mindhub-actividad-01
